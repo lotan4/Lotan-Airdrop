@@ -1,0 +1,2 @@
+# Lotan-Airdrop
+Join fast
